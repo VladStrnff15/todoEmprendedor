@@ -9,4 +9,5 @@ Además, ambas compañías van a colaborar también en diferentes acciones en me
 Es importante destacar que TUI cuenta con más de 1.600 plazas con salidas garantizadas a La Habana, a la zona del oriente cubano, a Santiago de Cuba y a las playas de Guardalavaca, de mayo a octubre. La mayorista cuenta con un amplio porfolio de opciones: tanto estancias, como combinados exclusivos, para que el cliente pueda elegir el viaje que mejor se adapte a sus intereses.
 
 https://todoemprendedor.cl https://despertaruniversal.cl
-https://diariopurochile.com https://noticiascondifenciais.com
+https://diariopurochile.com https://noticiascondifenciais.com https://todoemprendedor.cl https://despertaruniversal.cl https://diariopurochile.com https://noticiascondifenciais.com
+
